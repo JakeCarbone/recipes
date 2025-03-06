@@ -2,9 +2,7 @@
 
 ![](images/kimchi.jpg)
 
-## Usual preamble
-
-Sorry, I promise I did try to keep this short. Kimchi is a Korean fermented pickle. In Korea, there are lots of different kinds of Kimchi, not all spicy and made from all kinds of vegetables. Though in the west, kimchi is often used to refer to the spicy cabbage kimchi, which I make in this recipe. There is lots of important cultural significance to Kimchi, that I won't pretend to be able to speak to in much depth, but I think it is important to recognise and remember that. It is easy for foods (fermented or not) to become trends detached from their cultural origins, i.e Kombucha and Kefir. I encourage people to read up on Kimchi and other foods and try to help carry on positive traditions associated with those food, i.e [Kimjang](https://ich.unesco.org/en/RL/kimjang-making-and-sharing-kimchi-in-the-republic-of-korea-00881). With commercially produced fermented foods replacing home made equivalents, these traditions are at risk of dying off. Not to say they are perfect, Kimjang appears to traditionally fall to the women of the family, but maybe by adapting these traditions and making kimchi from seasonal veg with friends and family, we can help keep these traditions alive and evolving.
+## Intro
 
 Kimchi is quite simple to make but it is quite time consuming, so maybe do it when you have a free afternoon. You can play around with the ingredients and amounts, and feel free to use it as a way to extend the life of veg you have in the fridge **but make sure you get the right amount of salt. The percentage of salt is the most important factor in getting your kimchi to ferment properly.** My recipe is based on this one from [Mangchi](https://www.youtube.com/watch?v=nLdvLt8XQ3Y), so full credit to her, she's awesome, go checkout her channel if you haven't already. I have made a number of changes, most importantly including more exact methods for getting the salt percentage correct and replacing the vegan broth with a Japanese equivalent that I think is easier to make.
 
