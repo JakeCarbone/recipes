@@ -35,7 +35,7 @@ Kimchi is quite simple to make but it is quite time consuming, so maybe do it wh
 
 1. Cut your cabbage leaves into 2 inch pieces, don't worry too much about washing it now, we will do that later. Put a bowl on a scale and tare it. Put your cut cabbage in it with 100ml of water, add 4% of the total weight in salt and give it a good mix. Cover the bowl and leave it for around 4 hours, mixing it every hour or so.
 2. Meanwhile start the broth. Add your dried mushrooms and kombu to a pot with 500ml of cold water. Put it over a medium heat and turn it off just before the water comes to a boil. Leave the pot covered for at least 2 hours to stew.
-3. Cut the carrots into matchsticks, and the spring onions into 3 inch sticks. Weigh the combination and note it down.
+3. Cut the carrots into 1cm thick sticks, and the spring onions into 3 inch sticks. Weigh the combination and note it down.
 4. When the stock is done, take out the kombu and mushrooms (you can keep the mushrooms and use them to make [soy pickled shiitake](https://cleanplates.com/recipe/pickled-shiitake-mushroom-recipe/)). Peal the garlic and ginger and roughly chop your apple/pear. Blend the garlic, ginger, apple/pear with the stock. Mix in the gochugaru and note the total weight. 
 5. Calculate the amount of salt you need. This is 2% of the total weight of the veg and the sauce. Mix the salt into the sauce with the kimchi juice if you have it.
 6. When the cabbage is done, drain it and wash it thoroughly 4-5 times, gently squeezing the brine out of the cabbage as you do. The cabbage should taste well seasoned but not too salty when tasted.
