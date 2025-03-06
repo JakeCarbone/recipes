@@ -24,7 +24,7 @@ Kimchi is quite simple to make but it is quite time consuming, so maybe do it wh
 * 4-8 carrots
 * 4 spring onions
 * 1 bulb of garlic
-* 1.5 inch of ginger
+* 2 inch of ginger (I think this helps kick start the fermentation)
 * 1 Apple or pear
 * 50-100g of gochugaru depending on how spicy you want it (you can blend dried chilli's but it is a real pain, trust me I have tried)
 * 2 tbsp of kimchi juice from a past batch or good brand (optional)
